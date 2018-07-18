@@ -1,0 +1,2 @@
+# website-Amitaba
+Share buddhism
